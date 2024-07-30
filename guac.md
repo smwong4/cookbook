@@ -7,6 +7,6 @@ Ingredients
 
 Instructions: 
 * Add all to bowl
-* Mash up
+* Mash up with fork
 * Mix
 
